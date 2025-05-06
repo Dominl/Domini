@@ -1,3 +1,3 @@
-# Domini  Alfar0
+# Domini  Alfaro
 ## Flores 
 ### Economia y planificacion 
